@@ -1,0 +1,1 @@
+![Picture of Gustavo Slaiman](https://media-exp1.licdn.com/dms/image/C4D03AQG2Rwpj645xWw/profile-displayphoto-shrink_800_800/0/1625109140953?e=1631750400&v=beta&t=x03PXzhvN7BZ9aa8jJvmeuXKaEL_U20PQ6QraDv8yyo)
